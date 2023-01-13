@@ -36,3 +36,9 @@ viento vuelve hacer como ayer para sentir el comienzo de mi vida,
 el comienzo de mi historia
 VIENTOOOOOOOO
 Y AHORA PARA TODA AMÉRICA EL SUPER RITMO DE GRUPO CELESTE
+
+5. Mariana
+I was scared of dentists and the dark
+I was scared of pretty girls and starting conversations
+Oh, all my friends are turning green
+You're the magician's assistant in their dream
