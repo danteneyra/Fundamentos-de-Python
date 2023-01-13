@@ -42,3 +42,10 @@ I was scared of dentists and the dark
 I was scared of pretty girls and starting conversations
 Oh, all my friends are turning green
 You're the magician's assistant in their dream
+
+6. Miguel New Song
+Wake up (wake up)
+Grab a brush and put a little makeup
+Hide your scars to fade away the shakeup (hide the scars to fade away the shakeup)
+Why'd you leave the keys upon the table?
+Here you go, creating another fable
