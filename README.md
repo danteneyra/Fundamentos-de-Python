@@ -1,2 +1,2 @@
-# Introducci-n-a-Python
+# Fundamentos-de-Python
 Curso introductorio de Python
